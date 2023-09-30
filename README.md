@@ -1,3 +1,3 @@
-# Tryign things learning
+# Trying things learning
 
 Description
